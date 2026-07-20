@@ -17,7 +17,7 @@ la creatividad y la iniciativa de hacer algo mejor ante todo y todos
 ### 💀 MY STACK & VIBE
 - **Style**: Grayscale / Gothic / Angel Wings
 - **Music**: Nirvana / Grunge
-- **Focus**: 343 IS GOOD
+- **Focus**: 343 IS GOD
 
 ---
 
