@@ -12,12 +12,12 @@
 </div>
 
 ## 🌑 ABOUT ME
-Explorando las sombras del código y la tecnología. Apasionado por la estética oscura, la música grunge y el desarrollo creativo. 
+la creatividad y la iniciativa de hacer algo mejor ante todo y todos 
 
 ### 💀 MY STACK & VIBE
 - **Style**: Grayscale / Gothic / Angel Wings
 - **Music**: Nirvana / Grunge
-- **Focus**: Creative Development & Cyber Aesthetics
+- **Focus**: 343 IS GOOD
 
 ---
 
